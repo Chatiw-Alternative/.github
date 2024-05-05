@@ -1,4 +1,4 @@
-Are you feeling restricted by the limitations of Chatiw and seeking a more fulfilling online chat experience? Look no further than Everyone.chat, where diversity, user-friendliness, and security converge to create the ultimate chatting platform.
+Are you feeling restricted by the limitations of Chatiw and seeking a more fulfilling online chat experience? Look no further than [Everyone.chat](https://everyone.chat), where diversity, user-friendliness, and security converge to create the ultimate chatting platform.
 Why Everyone.chat Stands Out:
 
 # Everyone.chat offers a myriad of advantages over Chatiw, ensuring a richer and more engaging chat environment:
